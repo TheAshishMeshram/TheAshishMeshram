@@ -1,7 +1,7 @@
 # 💫 Hi 👋, I'm Ashish Meshram
 **Designer || Developer || Investor**
 
-## 🔗 I am a Entrepreneur. 😊😊
+## 🔗 I am an Entrepreneur. 😊😊
 
 Stay Tuned!
 
